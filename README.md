@@ -1,4 +1,3 @@
 # hi
 
-## Things I've done:
-### 1: 
+hehe big secret project ooooooo
